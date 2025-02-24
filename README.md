@@ -1,3 +1,3 @@
 # choma-coma
 
-sho me
+sho me(cool)
